@@ -21,3 +21,4 @@ Fresher | Open to Work | Passionate about Data & AI
 ## 📬 Contact
 📧 turpativyshali@gmail.com
 🔗 linkedin.com/in/vyshaliturpati
+
